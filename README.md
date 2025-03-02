@@ -13,7 +13,5 @@ I am passionate about **technology, startups, and AI-powered solutions**. Curren
 - **Startup Growth Initiatives** – Empowering student entrepreneurs  
 
 ## 🔗 Connect with Me  
-📩 [Email](mailto:govinddhsharma@gmail.com) | 💼 [LinkedIn](www.linkedin.com/in/govind-sharma09
-
-)   
+📩 [Email](mailto:govinddhsharma@gmail.com) | 💼 [LinkedIn](www.linkedin.com/in/govind-sharma09)   
 
